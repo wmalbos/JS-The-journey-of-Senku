@@ -1,1 +1,1 @@
-# the-journey-of-senku
+# Le voyage de Senku
